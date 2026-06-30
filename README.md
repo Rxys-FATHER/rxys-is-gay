@@ -1,2 +1,3 @@
 # rxys-is-gay
-😂xswl
+
+文本
